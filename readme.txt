@@ -1,2 +1,1 @@
-hello
-hello
+ni shi  ge hao ren
